@@ -1,0 +1,2 @@
+# Laboratorka10
+wmamwa
